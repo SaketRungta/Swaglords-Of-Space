@@ -1,1 +1,1 @@
-# Swaglords-Of-Space
+# SwaglordsOfSpace
